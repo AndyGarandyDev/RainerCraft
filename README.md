@@ -7,7 +7,7 @@
     Für die größten Haider unter euch gibt es sogar einen Mini Rainer für unterwegs.
 
     Ist meine erste Minecraft Mod und nur ein kleines Projekt. 
-    Lasst gerne einen Star hier und lasst mich Wissen, falls ihr euch noch weitere Inhalte wünscht.
+    Lasst gerne einen Star hier und lasst mich wissen, falls ihr euch noch weitere Inhalte wünscht.
     
     Viel Spass und MEDDL LOIDE!
 
